@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Miriam1999
-- 🌱 I’m currently studying Financial Engineering.
+- 🌱 I’m currently studying Financial Engineering and working as a Business Analyst Intern.
 - 📫 How to reach me: miriamrosasm@live.com
 
 <!---
